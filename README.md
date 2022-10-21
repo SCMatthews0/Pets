@@ -9,6 +9,6 @@ Thoughout my life I have owned MANY animals. Here is a list of them:
 - A Dog named *Freyja*
 - A Cat Named *Frank*
 - A praying Mantis never named
-- 
-- 
--
+
+
+
